@@ -1,0 +1,1 @@
+# eliminar-o-baja-logica
